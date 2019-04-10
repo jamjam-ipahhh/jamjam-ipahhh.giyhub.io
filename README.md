@@ -1,1 +1,0 @@
-# jamjam-ipahhh.giyhub.io
